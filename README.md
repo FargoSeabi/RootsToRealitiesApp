@@ -1,1 +1,1 @@
-Roots to Realities is an innovative platform developed to connect local communities with sustainable opportunities through technology-driven solutions. The app empowers users to access educational resources, agricultural insights, and community development tools — turning local challenges into real, impactful change.
+
